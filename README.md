@@ -1,2 +1,0 @@
-# Tutoralasprogram
-innovatív tanulástechnika
